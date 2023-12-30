@@ -12,7 +12,6 @@
 
 - 📄 Know about my experiences [https://acrobat.adobe.com/id/urn:aaid:sc:AP:136d152d-92ee-4b6d-90b8-80baf5d92b42](https://acrobat.adobe.com/id/urn:aaid:sc:AP:136d152d-92ee-4b6d-90b8-80baf5d92b42)
 
-- ⚡ Fun fact **I am crazy😁**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
